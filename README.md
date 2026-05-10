@@ -1,6 +1,10 @@
-<p align="center">
-  <img src="SheBadBaddie" alt="SheBad Brand Banner" width="100%">
-</p>
+
+
+<p align="center"><i>Top Tier Energy Only</i></p>
+
+---
+
+
 # Hi, I'm $heBad Also known as Baddie 👋
 
 ### Self-Produced Artist | Digital Content Creator | Official Bigo Host
