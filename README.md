@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="YOUR-FILE-NAME.png" alt="SheBad Brand Banner" width="100%">
+  <img src="SheBadBaddie" alt="SheBad Brand Banner" width="100%">
 </p>
 # Hi, I'm $heBad Also known as Baddie 👋
 
