@@ -9,7 +9,7 @@
 
 ### Self-Produced Artist | Digital Creator | AI Creator | Official BiGO Host
 
-Welcome to my official GitHub profile. This is the central hub for all things **$heBad** N **BOUJEE**.
+Welcome to my official GitHub profile. This is the central hub for all things **$HEBADNBOUJEE**.
 
 - 🎤 **Creative Focus:** R&B, Soul, and Independent Music Production.
 - 📸 **Aesthetic:** High-fashion editorial and luxury branding.
