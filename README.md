@@ -7,7 +7,7 @@
 
 # Hi, I'm $heBad Also known as Baddie 👋
 
-### Self-Produced Artist | Digital Content Creator | Official Bigo Host
+### Self-Produced Artist | Digital Creator | AI Creator | Official BiGO Host
 
 Welcome to my official GitHub profile. This is the central hub for all things **$heBad** and **BADNBOUJEE**.
 
